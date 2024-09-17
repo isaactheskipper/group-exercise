@@ -1,3 +1,4 @@
+
 Joy, Isaac, and Shaline were assigned a group project on renewable energy. The trio gathered in the school library, each with a different vision for their presentation. Joy wanted flashy visuals and interactive elements, Isaac preferred detailed research and statistics, while Shaline aimed for a clear, concise message.
 
 Their initial meeting was chaotic. Joy’s enthusiasm clashed with Isaac’s precision, leading to frustration. Shaline, sensing the tension, proposed a compromise.
